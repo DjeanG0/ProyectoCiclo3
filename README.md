@@ -1,3 +1,3 @@
 # ProyectoCiclo3
 
-Jhon Jairo Alvarez
+Jhon Jairo Alvarez L
